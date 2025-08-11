@@ -1,1 +1,1 @@
-![Alt text](../images/vertical_glass15.png "Optional title text")
+![Teamed Up](../images/combined_Ohtani_Betts_Freeman_Hernandez.png "Teamed Up")
